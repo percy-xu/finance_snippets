@@ -1,3 +1,6 @@
+# Recommended: download and view the HTML version at:
+# https://drive.google.com/file/d/17YE3jhe3DD3TNGAGWyy95hoT-_gS9-du/view?usp=sharing
+
 # Introduction
 
 # It's no secret President Trump loves talking about the stock market. 
