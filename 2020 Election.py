@@ -1,3 +1,6 @@
+# Recommended: *download* and view the HTML version at:
+# https://drive.google.com/file/d/1fM14TyLNZ3M0pJP_lgr3EnQoArwDwHgH/view?usp=sharing
+
 # Introduction
 # Election day is only a few days away... Who will win? Who's next?
 # 
